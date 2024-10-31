@@ -1,2 +1,2 @@
 woyy lek
-memek
+astagfirullah
