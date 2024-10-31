@@ -1,2 +1,1 @@
-woyy lek
-astagfirullah
+WOYYY
